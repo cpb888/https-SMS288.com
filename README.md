@@ -1,1 +1,1 @@
-# https-SMS288.com
+# https://SMS288.com
